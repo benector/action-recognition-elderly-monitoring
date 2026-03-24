@@ -92,4 +92,4 @@ Research areas: Computer Vision and Computer Graphics
 [Watch the presentation video](https://www.youtube.com/watch?v=alc41NiFxrg)
 
 🔗 LinkedIn:  
-https://linkedin.com/in/beatrizbenedicto
+[https://linkedin.com/in/beatrizbenedicto](https://linkedin.com/in/beatrizbenedicto)
