@@ -90,4 +90,4 @@ Mestranda em Ciência da Computação — Universidade Federal de Juiz de Fora (
 [Assista à apresentação do projeto](https://www.youtube.com/watch?v=alc41NiFxrg)
 
 🔗 LinkedIn:  
-[https://linkedin.com/in/beatrizbenedicto(https://linkedin.com/in/beatrizbenedicto).
+[https://linkedin.com/in/beatrizbenedicto](https://linkedin.com/in/beatrizbenedicto).
